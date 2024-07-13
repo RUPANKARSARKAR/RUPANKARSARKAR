@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @RUPANKARSARKAR
-- 👀 I’m interested in nothing. 
+- 👀 I’m interested in technology. 
 - 🌱 I’m currently learning about technology. 
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach... 
+- 📫 How to reach... @ig_rupankar_07
 - 😄 Pronouns: he/him.
 - ⚡ Fun fact: i am just 18 years old.
 
